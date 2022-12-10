@@ -16,3 +16,5 @@ i'm interested in:
 ---
 
 i believe you should be able to inspect and know how software works, and thats double important when its stuff that goes in your body! i plan to contribute to projects that make sex toys, bdsm, etc more open source!
+
+<a rel="me" href="https://girlcock.club/@libidoll">my mastodon :></a>
