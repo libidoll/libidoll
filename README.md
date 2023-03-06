@@ -1,16 +1,16 @@
-## hewwo! I'm Lia <3
+## hello! I'm Lia <3
 
 # 🔞 minors DNI please 🔞
 
 ---
 
-hi! this is my 18+ account 👀. I'll be using this account for naughty projects >:3  
+hi! this is my 18+ account. I'll be using this account for projects that will make me completely unemployable!
 
 i'm interested in:  
  - making open source software for  
    - sex toys  
    - practicing BDSM  
-   - and other sexy things!  
+   - safe online sexual activities  
  - [buttplug.io](https://github.com/buttplugio)  
 
 ---
